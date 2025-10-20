@@ -56,8 +56,8 @@ It helped to understand different types of customers like high spenders, low spe
 
 👩‍💻 **Deepa Shetty**  
 Intern at Algonive  
-Email: (your email id)  
-GitHub: (your GitHub link)
+Email: (shettydeepa2003@gmail.com)  
+GitHub: ([https://github.com/]
 
 ---
 
